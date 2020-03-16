@@ -64,6 +64,7 @@ reasons what the urgency is for the future - material wise, subject wise, he as 
 TALK TO DAD - Brainfracture
 
 Talk to Marieke - Yogateacher
+
 Get contact from mushroom-therapist
 
 Dive into shamanism
