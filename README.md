@@ -1,4 +1,4 @@
-# Research  IMD
+# HoleInTheHead
 
 [Links](https://www.notion.so/a25048f0ba8d4e6b80ddeeed7f204a4d)
 
@@ -47,9 +47,9 @@ reasons what the urgency is for the future - material wise, subject wise, he as 
 
 [https://www.youtube.com/watch?v=r0SC582sJvE](https://www.youtube.com/watch?v=r0SC582sJvE)
 
-[StatementSmall.pdf](Research%20IMD/StatementSmall.pdf)
+[StatementSmall.pdf](HoleInTheHead/StatementSmall.pdf)
 
-- increasing the Brainbloodvolume: by Yoga headstands, breathing exercise, smoking pot, drilling hole, jumoing from hot bath to cold bath
+- increasing the Brainbloodvolume: by Yoga headstands, breathing exercise, smoking pot, drilling hole, jumping from hot bath to cold bath
 - Timothy Leary - USA, Bart Hughes - Europe?
 - Bart Hughes: two prime objectives: to enlighten the adult and to healing mental illness
 
@@ -57,24 +57,48 @@ reasons what the urgency is for the future - material wise, subject wise, he as 
 
 ***London Calling: A Countercultural History of London since 1945*** by Barry Miles
 
-![Research%20IMD/Bildschirmfoto_2020-03-09_um_13.27.04.png](Research%20IMD/Bildschirmfoto_2020-03-09_um_13.27.04.png)
+![HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.04.png](HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.04.png)
+
+————————————————————
 
 ### How to proceed:
 
 TALK TO DAD - Brainfracture
 
 Talk to Marieke - Yogateacher
-
 Get contact from mushroom-therapist
 
 Dive into shamanism
 Read more about historical context
 
+# Typography publication
+
+### Inspiration
+
+![https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg](https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg)
+
+![HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png](HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png)
+
+————————————————————
+
 ## Ideas for transcoding
 
 - Experience/Ritual/Tools to experience
-- Visuals?
-- digital instruction guide for trepanation?
-- 
+→ ***Breathwork:*
+Holotropic breathwork**
 
-![Research%20IMD/Bildschirmfoto_2020-03-09_um_13.27.18.png](Research%20IMD/Bildschirmfoto_2020-03-09_um_13.27.18.png)
+[https://www.youtube.com/watch?v=RuKAq6B1RxQ](https://www.youtube.com/watch?v=RuKAq6B1RxQ)
+
+
+**Wim Hof Method
+
+[https://www.youtube.com/watch?v=nzCaZQqAs9I](https://www.youtube.com/watch?v=nzCaZQqAs9I)
+
+→ Headstands
+→ jumping from hot bath to cold bath**
+
+- Visuals? (found footage childhood memories?)
+- digital instruction guide for trepanation?
+- digital publication of book and the sattelites around it
+
+![https://farm5.static.flickr.com/4050/4504365165_3c4b3da20b_b.jpg](https://farm5.static.flickr.com/4050/4504365165_3c4b3da20b_b.jpg)
