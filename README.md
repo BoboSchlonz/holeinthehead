@@ -71,13 +71,6 @@ Get contact from mushroom-therapist
 Dive into shamanism
 Read more about historical context
 
-# Typography publication
-
-### Inspiration
-
-![https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg](https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg)
-
-![HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png](HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png)
 
 ————————————————————
 
@@ -100,5 +93,13 @@ Holotropic breathwork**
 - Visuals? (found footage childhood memories?)
 - digital instruction guide for trepanation?
 - digital publication of book and the sattelites around it
+
+# Typography publication
+
+### Inspiration
+
+![https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg](https://www.skineart.com/wp-content/uploads/2011/01/4d2ce1d29220d5332949468_c144f44aca_z.jpg)
+
+![HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png](HoleInTheHead/Bildschirmfoto_2020-03-09_um_13.27.18.png)
 
 ![https://farm5.static.flickr.com/4050/4504365165_3c4b3da20b_b.jpg](https://farm5.static.flickr.com/4050/4504365165_3c4b3da20b_b.jpg)
