@@ -83,7 +83,7 @@ Holotropic breathwork**
 [https://www.youtube.com/watch?v=RuKAq6B1RxQ](https://www.youtube.com/watch?v=RuKAq6B1RxQ)
 
 
-**Wim Hof Method
+***Wim Hof Method*
 
 [https://www.youtube.com/watch?v=nzCaZQqAs9I](https://www.youtube.com/watch?v=nzCaZQqAs9I)
 
@@ -92,7 +92,8 @@ Holotropic breathwork**
 
 - Visuals? (found footage childhood memories?)
 - digital instruction guide for trepanation?
-- digital publication of book and the sattelites around it
+- digital publication of book and the sattelites around it (spoken guided holotropic breathwork session, visuals)
+
 
 # Typography publication
 
