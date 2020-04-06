@@ -93,7 +93,7 @@ Holotropic breathwork**
 - Visuals? (found footage childhood memories?)
 - digital instruction guide for trepanation?
 - digital publication of book and the sattelites around it (spoken guided holotropic breathwork session, visuals)
-
+- voice messages
 
 # Typography publication
 
